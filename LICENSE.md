@@ -1,4 +1,4 @@
-# 
+# Secure CorelDRAW extensions for Mac OS | Best CorelDRAW extensions for PC Windows. Featuring prototype-export and grid-and-guides — optimized for maximum performance on every platform.
 
 
 
